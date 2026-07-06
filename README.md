@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akshoyab
 - 👀 I’m interested in coding 
-- 🌱 I’m currently learning german language from osmania university hyderabad
+- 🌱 I’m german language specialist working as a AI Trainer for Indium Software Inc.
 - 💞️ I’m looking to collaborate on my own
 - 📫 How to reach me 
 - 😄 Pronouns: he/his
